@@ -1,2 +1,0 @@
-# testtong.com
-#topancahaya
